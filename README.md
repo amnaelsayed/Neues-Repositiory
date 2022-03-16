@@ -5,3 +5,7 @@ Ich bin Osman Öztürk ,35
 Ich komme aus der Türkei 
 
 Ich wohne in Dortmund seit 3 jahren
+
+Amna , 34 
+
+Berlin
